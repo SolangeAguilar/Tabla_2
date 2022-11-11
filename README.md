@@ -9,3 +9,4 @@
 [![Whats-App-Image-2022-11-11-at-11-31-19-AM.jpg](https://i.postimg.cc/x8zSDy1H/Whats-App-Image-2022-11-11-at-11-31-19-AM.jpg)](https://postimg.cc/sGsL5WSD)
 # Tabla_de_errores
 [![Whats-App-Image-2022-11-11-at-10-30-48-AM.jpg](https://i.postimg.cc/3wYpktM8/Whats-App-Image-2022-11-11-at-10-30-48-AM.jpg)](https://postimg.cc/YvDjVfqZ)
+[![Whats-App-Image-2022-11-11-at-11-00-38-AM.jpg](https://i.postimg.cc/X752MN9T/Whats-App-Image-2022-11-11-at-11-00-38-AM.jpg)](https://postimg.cc/crs7wS9m)
